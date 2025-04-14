@@ -1,1 +1,0 @@
-# churches-donation-tracker
